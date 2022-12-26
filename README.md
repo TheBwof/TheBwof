@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on ... Helpless personal
 - 📫 How to reach me ...
    - My Facebook : https://www.facebook.com/fahimahamed24
-   - My Tiktok   : tiktok.com/@fahimahamed_
+   - My Tiktok   : https://tiktok.com/@fahimahamed_
    - My Instra.. : https://instagram.com/fahimahamed_24
 
 <!---
